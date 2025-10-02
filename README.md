@@ -1,1 +1,2 @@
-# reincarnation-of-the-warrior-party-archmage
+# Reincarnation of the Warrior Party Archmage
+Lorsque Rin a 13 ans, il voyage avec un groupe de guerriers, dirigé par Lista, pour vaincre l’Abysse, un mal qui menace de plonger le monde dans le chaos. Mais la bataille fait rage, et dans les derniers instants, le corps de Rin est empoisonné par l’Abysse, et sa vie est en danger. Avec les mots « Je reviendrai. », l’âme de Lin est mise en sommeil, pour être ressuscitée 300 ans plus tard sous la forme d’un noble. Lin commence sa seconde vie dans un monde paisible, mais les forces obscures du destin s’agitent à nouveau.
